@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Ramneek-Singh1, I am a CS student at UCSC!
+- 👋 Hi, I’m @Ramneek-Singh04, I am a CS student at UCSC!
